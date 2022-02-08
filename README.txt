@@ -1,5 +1,4 @@
-Dylan Floyd
-Assignment 1
+Dylan
 
 ----------------------------------------
 
